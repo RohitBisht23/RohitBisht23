@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **rohitbisht0911@gmail.com**
 
-- 📄 Check-My-Resume-Here -> [https://drive.google.com/file/d/1grWOtTlZB0paZuWnSkMCucrymTVYXD0e/view?usp=drive_link](https://drive.google.com/file/d/1grWOtTlZB0paZuWnSkMCucrymTVYXD0e/view?usp=drive_link)
+- 📄 Check-My-Resume-Here -> [[https://drive.google.com/file/d/1grWOtTlZB0paZuWnSkMCucrymTVYXD0e/view?usp=drive_link](https://drive.google.com/file/d/1w-mqgJH6WOemIQDjvnuPmDmvb9GKu3LS/view?usp=drive_link)]([https://drive.google.com/file/d/1grWOtTlZB0paZuWnSkMCucrymTVYXD0e/view?usp=drive_link](https://drive.google.com/file/d/1w-mqgJH6WOemIQDjvnuPmDmvb9GKu3LS/view?usp=drive_link))
 
 - ⚡ Fun fact **I am funny actually.**
 
